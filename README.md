@@ -1,2 +1,4 @@
 # personal-site
-new one
+making a new one because i don't like my previous one :
+
+a;slkdjaf;lskdjfa;sldk
